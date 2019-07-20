@@ -18,7 +18,7 @@ to be just as boastful and dishonest in their job seeking correspondence.
 So we are rushing to your aid with a pre-packaged kit that will enable
 you to compose your own impressive, sure fire Application Letter. It is
 easy to do. Merely give our all-purpose form the personal touch by 
-filling each numbered blank with the attenbtion-getting phrase of your
+filling each numbered blank with the attention-getting phrase of your
 choice. Then sit back and wait for lucrative offers to roll in as dazzled
 employers rush to respond to your version of 
 MAD'S "Do-It-Yourself" JOB APPLICATION LETTER
